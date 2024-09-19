@@ -1,6 +1,6 @@
 # Privacy Policy for 10BMS
 
-**Effective Date: [Insert Date]**
+**Effective Date: September 19, 2024**
 
 At 10BMS, your privacy is of utmost importance to us. This Privacy Policy outlines how we collect, use, and protect your information when you use our services. By using 10BMS, you agree to the collection and use of information in accordance with this policy.
 
